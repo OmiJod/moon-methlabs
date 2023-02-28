@@ -30,7 +30,7 @@ Personally designed to enhance the RP experience
 Configurable options for a unique experience
 Affordable script
 
-#Buy Now - https://moon-scriptsstore.tebex.io/package/5552064
+# Buy Now - https://moon-scriptsstore.tebex.io/package/5552064
 
-#Preview - https://www.youtube.com/watch?v=Xuf3pcdUrtY
+# Preview - https://www.youtube.com/watch?v=Xuf3pcdUrtY
 
